@@ -1,7 +1,7 @@
 # Dragon_Ball_Z
  La serie de Dragon Ball z me llama la atencion y me gusta, porque el personaje principal es Goku quien tendra que defender la tierra de diferentes enemigos que se le atraviesan en las diferentes sagas de dragon ball.
 
-Se pone interesante porque a traves de los diferentes capitulos goku presenta diferentes evoluciones o transformaciones que vuelven su estilo de pelea de un mayor poder 😃
+Se pone interesante porque a traves de los diferentes capitulos goku presenta diferentes evoluciones o transformaciones que vuelven su estilo de pelea de un mayor poder 😄
 
 La serie integra a varios personajes que tambien ayuda a goku a defender la tierra de lo antes mencionado como: extraterrestres, androides etc...
 
